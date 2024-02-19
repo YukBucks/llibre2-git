@@ -1,1 +1,0 @@
-# llibre2.git
